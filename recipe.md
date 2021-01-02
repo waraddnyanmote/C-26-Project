@@ -1,0 +1,1 @@
+pav bhaji recipe | easy mumbai style pav bhaji recipe with detailed photo and video recipe. a world-famous fast food dish or perhaps the king of the street food from the western state of maharashtra. the recipe is an amalgamation of vegetables spiced with a unique blend of spices known as pav bhaji masala and served with soft bread roll aka pav.
